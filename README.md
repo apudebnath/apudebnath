@@ -14,7 +14,7 @@
 
 - 💬 Ask me about **React**
 
-- 📫 How to reach me **apu1578@gail.com**
+- 📫 How to reach me **apu1578@gmail.com**
 
 - ⚡ Fun fact **Love everything**
 
